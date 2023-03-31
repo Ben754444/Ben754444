@@ -1,4 +1,7 @@
-# Hey, I'm [Ben.](https://benja.eu.org/)
-i do cool stuff sometimes. most of my stuff is private, at least for now.
+i do cool stuff sometimes. most of it is private, at least for now.
+
+https://papers.benja.eu.org
+
+https://discord.com/users/311551089856217089
 
 ![forthebadge](https://forthebadge.com/images/badges/works-on-my-machine.svg)
